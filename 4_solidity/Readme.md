@@ -1,0 +1,1 @@
+this section funds and all. how to send fund from one node to another
